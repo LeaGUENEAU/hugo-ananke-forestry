@@ -35,29 +35,30 @@ lea.gueneau27@gmail.com
 
 **2020**
 
-* Emploie d'été : durer de 3 semaines, Employé commerciale Leclerc Drive (Vernon)
+Emploie d'été : durer de 3 semaines, Employé commerciale Leclerc Drive (Vernon)
 
 **2019**
 
-* Stage de terminale graphique à l’office du tourisme de Vernon (27). Projets : Affiches, livret de jeux, brochures, sites internet, pub réseaux sociaux...
+Stage de terminale graphique à l’office du tourisme de Vernon (27). Projets : Affiches, livret de jeux, brochures, sites internet, pub réseaux sociaux...
 
 **2018**
 
-* Stage de terminale graphique chez seritex’style à Pacy-sur-Eure (27). sérigraphie, vente de textile, communication et publicité.
-* Stage de première graphique chez seritex’style à Pacy-sur-Eure (27).
+Stage de terminale graphique chez seritex’style à Pacy-sur-Eure (27). sérigraphie, vente de textile, communication et publicité.
 
+Stage de première graphique chez seritex’style à Pacy-sur-Eure (27).
 
-* Stage de première a la mairie de Gaillon (27) Projets : Affiches publicitaires, brochures, sites internet
+Stage de première a la mairie de Gaillon (27) Projets : Affiches publicitaires, brochures, sites internet
 
 **2017**
 
-* Stage de seconde graphique chez Italic Communication à Evreux (27). Projets sur InDesign, Illustrator, Photoshop, Cartes de visite, flyers, affiches, vidéo entreprise.  
-   
-* Stage de seconde graphique chez reflex pub à St Marcel (27). Mise en page sur Coreldraw, échenillage, découpe, flyers, stickers, impression,...
+Stage de seconde graphique chez Italic Communication à Evreux (27). Projets sur InDesign, Illustrator, Photoshop, Cartes de visite, flyers, affiches, vidéo entreprise.  
+ 
+
+Stage de seconde graphique chez reflex pub à St Marcel (27). Mise en page sur Coreldraw, échenillage, découpe, flyers, stickers, impression,...
 
 **2016**
 
-* Stage d'observation 3éme chez Schneider Toshiba Inventer à Pacy sur Eure (27).
+Stage d'observation 3éme chez Schneider Toshiba Inventer à Pacy sur Eure (27).
 
     COMPÉTENCES
 

@@ -16,20 +16,20 @@ lea.gueneau27@gmail.com
 
 **2020-2023**
 
-* Préparation Bachelor BACHELOR "Graphisme & Web design" à la Normandie Web school (Rouen)
+Préparation Bachelor BACHELOR "Graphisme & Web design" à la Normandie Web school (Rouen)
 
 **2019-2020**
 
-* Préparation au BTS audiovisuel option montage (1ère année) au lycée Pierre Corneille (Rouen) Connaissances logiciels (Avid Media Composer)
+Préparation au BTS audiovisuel option montage (1ère année) au lycée Pierre Corneille (Rouen) Connaissances logiciels (Avid Media Composer)
 
 **2016-2019**
 
-* Bac professionnel RPIP (Réalisation de Produits imprimés et plurimédia option production graphique) au lycée Louis Modeste Leroy (Evreux. (27)). Connaissances informatiques : PAO (InDesing, Photoshop, Illustrator et Première Pro)
+Bac professionnel RPIP (Réalisation de Produits imprimés et plurimédia option production graphique) au lycée Louis Modeste Leroy (Evreux. (27)). Connaissances informatiques : PAO (InDesing, Photoshop, Illustrator et Première Pro)
 
 **2016**
 
-* Brevet des collèges au collège Léonard de Vinci Saint Marcel (27).  
-   Langues: Anglais en LV1, Espagnol en LV2
+Brevet des collèges au collège Léonard de Vinci Saint Marcel (27).  
+ Langues: Anglais en LV1, Espagnol en LV2
 
     EXPERIENCE PROFESSIONNELLE
 

@@ -1,7 +1,7 @@
 ---
 title: CV
 description: Léa GUENEAU / 26-12-2001
-featured_image: ''
+featured_image: "/images/notebook.jpg"
 
 ---
     CONTACT

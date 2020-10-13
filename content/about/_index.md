@@ -61,14 +61,22 @@ lea.gueneau27@gmail.com
 
     COMPÉTENCES
 
-* InDesign
-* Illustrator 
-* Photoshop 
-* Première Pro 
-* Media Composer
+InDesign
+
+Illustrator 
+
+Photoshop 
+
+Première Pro 
+
+Media Composer
 
     HOBBIES & LOISIRS
 
-Membre de l’association “Oxyjeunes”
+Voile
 
-Voile, Fitness. Cinéma, Dessin
+Fitness
+
+Cinéma
+
+Dessin
